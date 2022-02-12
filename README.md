@@ -14,7 +14,7 @@
 
 <a href="https://carnation-toucan-984.notion.site/WTU-AIDM-CLUB-384450c2145f4e4da5121e0f4f04a2c8">点击进入俱乐部主页</a>
 
-<a href="https://pages.aliyundrive.com/mobile-page/web/beinvited.html?code=87ecdca">阿里云盘新人邀请，赠送500G空间]</a>
+<a href="https://pages.aliyundrive.com/mobile-page/web/beinvited.html?code=7a70b69">阿里云盘新人邀请，赠送500G空间</a>
 
 ## 任务说明
 
